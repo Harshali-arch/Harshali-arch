@@ -1,5 +1,5 @@
 👋 Hi, I’m @Harshali-arch
-👀 I’m interested in Data Analysis and Web-devloping
+👀 I’m interested in Data Analysis
 🌱 I’m currently learning Bsc(IT)
 💞️ I’m looking to collaborate on Data Analysis for internship
 📫 How to reach me https://www.linkedin.com/in/harshali-aherao-1b2ab5303
